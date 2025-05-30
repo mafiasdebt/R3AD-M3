@@ -13,7 +13,6 @@ Forsaken . TR:UD . Let Him Go . Block Tales . ^_^ . OR RObLoX iN GeN3rAL!!
 
 Noli666 I lOv3 yOU..
 
-https://docs.google.com/document/d/1jrsNDhT-CZVViFxCaoQTYZFdZPRge6tJiGKjgYfmiaI/edit?usp=sharing
 
 
 VCR IS TH3 B3ST I LOV3 TH3M SO SO SO SO SO MUCH <3333333333👅👅👅
