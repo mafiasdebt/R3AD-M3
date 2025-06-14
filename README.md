@@ -17,7 +17,7 @@ Noli666 I lOv3 yOU..
 VCR IS TH3 B3ST I LOV3 TH3M SO SO SO SO SO MUCH <3333333333👅👅👅
 
 
-pL3AS3 do NOT b3 pushy with m3 I am sensitiv3 and it will tick me off I fear sigh
+pL3AS3 do NOT b3 pushy with m3 I am sensitiv3 and it will tick me off I f3ar.
 
 I AM som3TIM3S V3RY WArY OF thiNGs dU3 TO MY OV3RthiNKING OR I MIGHT aLwayS THINK SOM3thINGS WROng So PL3AS3 B3 Car3FUL AROUND M3 MosT of TH3 TIM3.
 
